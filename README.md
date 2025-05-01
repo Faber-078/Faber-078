@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Faber-078
+- 👋 Hi, I’m @Fabrice bamporineza
 - 👀 I’m interested in AI and ICT
 - 🌱 I’m currently learning Finance
 - 💞️ I’m looking to collaborate on all leaders who are interested in african society especial pool families and streat kids
